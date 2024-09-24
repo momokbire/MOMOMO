@@ -1,2 +1,0 @@
-# MOMOMO
-MOMOMO
